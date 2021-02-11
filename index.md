@@ -2,7 +2,7 @@ Hi my name is Scott and I looooove cars! Nothing I love more than a big juicy Fo
 
  I love the sound of the F150. I love the sounds of the F150 because it sounds nice, and a nice sound. Here's a video of the F150 I made:
 
-https://www.youtube.com/watch?v=-bHBDS_Ht6U&ab_channel=CFilms
+[https://www.youtube.com/watch?v=-bHBDS_Ht6U&ab_channel=CFilms](https://www.youtube.com/watch?v=-bHBDS_Ht6U&ab_channel=CFilms)
 
 Some other things I'm interested in: the University of Arizona Wildcats and people who graduate school. I hate new housing, the Arizona State University Sun Devils, and [Aparna](http://aparnakrishnan.com/).  If you're a college student, please leave a comment below or email me at allyson@thielfellowship.org. 
 
