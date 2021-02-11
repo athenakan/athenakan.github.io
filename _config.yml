@@ -1,2 +1,4 @@
 theme: jekyll-theme-slate
 title: happpppy birthday!!
+github:
+  is_project_page: false
